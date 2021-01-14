@@ -1,4 +1,4 @@
-For <a href="https://www.pangeaglobalservices.com/lead-generation/">B2B marketing</a>, the term <a href="https://www.pangeaglobalservices.com/lead-generation/">‘lead generation’</a> and <a href="https://www.pangeaglobalservices.com/lead-generation/">‘lead nurturing’</a. is in constant use. But usually, people make a mistake in understanding the difference and think that these terms are interchangeable. 
+For <a href="https://www.pangeaglobalservices.com/lead-generation/">B2B marketing</a>, the term <a href="https://www.pangeaglobalservices.com/lead-generation/">‘lead generation’</a> and <a href="https://www.pangeaglobalservices.com/lead-generation/">‘lead nurturing’</a>. is in constant use. But usually, people make a mistake in understanding the difference and think that these terms are interchangeable. 
 
 But let me tell you, if you don’t know the difference between these two terms then you are in the right place. I’m going to clear all your concepts, whether working with one in the market helps to achieve the goal or both have to work together.
 
