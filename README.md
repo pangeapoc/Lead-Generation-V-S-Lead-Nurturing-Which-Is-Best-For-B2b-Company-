@@ -22,7 +22,7 @@ It brings visitors to the website and converts them into leads. It centers on in
 
 <a href="https://www.pangeaglobalservices.com/lead-generation/">Outbound lead generation</a>:
 
-Sending messages out at a target audience, regardless of the interest of the audience to the related content. It centers on outbound marketing strategies like advertising and email marketing.
+Sending messages out at a target audience, regardless of the interest of the audience to the related content. It centers on outbound marketing strategies like advertising and <a href="https://www.pangeaglobalservices.com/email-marketing-services/">email marketing</a>.
 
 What Is <a href="https://www.pangeaglobalservices.com/lead-generation/">‘Lead Nurturing’</a>?
 
